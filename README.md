@@ -6,7 +6,9 @@
 
 - 📫 How to reach me **beluplanas1@gmail.com**
 
-- ⚡ Fun fact **I like dancing 💃**
+- ⚡ Fun fact I like dancing 💃 and travelling all around the world 🌊 
+
+- 🌍 Currently living in Spain 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
