@@ -4,6 +4,8 @@
 
 - 👯 I’m looking to collaborate on **Data Science projects**
 
+-  🤯 I just finished the data science bootcamp at Le Wagon, and I'm starting some personal projects in order to acquire more experience into the data science field.
+
 - 📫 How to reach me **beluplanas1@gmail.com**
 
 - ⚡ Fun fact I like dancing 💃 and travelling all around the world 🌊 
